@@ -1,4 +1,4 @@
-3n1b.com {叁年壹班}
+yanda.party {烟大论坛}
 ========
 
 tornado  
